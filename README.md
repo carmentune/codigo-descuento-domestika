@@ -2,13 +2,9 @@
 
 Si buscas mejorar tus habilidades creativas o aprender una nueva disciplina, Domestika destaca como la plataforma de formación de referencia en la comunidad hispanohablante. Para maximizar tu presupuesto educativo, puedes aplicar el código exclusivo **CARMENTUNE10** durante el proceso de pago y obtener un **10% de descuento adicional**.
 
----
-
 ## 🎟️ Cupón Promocional Activo para Domestika
 
 La principal ventaja de usar el código **CARMENTUNE10** es que es totalmente compatible con las promociones oficiales de la plataforma. Si encuentras un curso que ya cuenta con un 75% de rebaja por tiempo limitado, al aplicar este cupón conseguirás sumar ese 10% extra, optimizando al máximo el precio final.
-
----
 
 ## Cómo canjear el código paso a paso
 Aplicar tu ventaja promocional es un proceso rápido y directo. Sigue estas sencillas instrucciones:
@@ -22,8 +18,6 @@ Aplicar tu ventaja promocional es un proceso rápido y directo. Sigue estas senc
 4. Localiza el apartado con el texto "¿Tienes un código de descuento?".
 
 5. Escribe **CARMENTUNE10** en la casilla y confirma. ¡Listo! El total a pagar se actualizará al instante con tu nuevo precio.
-
----
 
 ## Consideraciones sobre los precios reducidos de Domestika
 

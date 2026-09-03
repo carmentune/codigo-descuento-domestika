@@ -40,7 +40,7 @@ Este código promocional es universal y aplicable a gran parte del catálogo de 
 ## ❓ Preguntas Frecuentes (FAQ) sobre los descuentos en Domestika
 
 **¿El código CARMENTUNE10 caduca?**
-Actualmente, este código ha sido revisado y se mantiene activo para los usuarios. Te recomendamos aplicarlo durante tu próxima compra para asegurar este 10% de ahorro antes de que cambien las políticas promocionales.
+Actualmente, este código ha sido revisado y se mantiene activo para los usuarios. Te recomiendo aplicarlo durante tu próxima compra para asegurar este 10% de ahorro antes de que cambien las políticas promocionales.
 
 **¿Puedo usar el cupón si ya hay rebajas en la web?**
 ¡Sí! Esta es la mayor ventaja del cupón CARMENTUNE10. Si Domestika tiene activas campañas de ofertas temporales (como Black Friday, Cyber Monday o rebajas flash), este 10% se acumulará al descuento existente en tu carrito.

@@ -26,3 +26,29 @@ En ocasiones, la plataforma ofrece cursos a precios muy bajos (por ejemplo, a 0,
 * **Suscripción Domestika Plus:** Estas tarifas tan agresivas suelen requerir que actives la prueba gratuita de 30 días de su membresía Plus.
 
 * **Gestión de la renovación:** Si únicamente quieres el curso a ese precio promocional y no deseas mantener la suscripción a largo plazo, asegúrate de cancelar la prueba antes de que transcurra el mes. De lo contrario, se te cobrará la cuota de renovación automática.
+
+## 🎨 ¿En qué categorías puedes usar el cupón CARMENTUNE10?
+
+Este código promocional es universal y aplicable a gran parte del catálogo de la plataforma. Para sacar el máximo partido a tu 10% extra, te recomiendo explorar las áreas más populares para creativos y profesionales en 2026:
+
+* **Ilustración y Dibujo:** Cursos de ilustración digital (Procreate, Photoshop) y tradicional (acuarela, grafito).
+* **Diseño Gráfico y Animación:** Especializaciones en branding, diseño editorial, creación de logos y After Effects.
+* **Marketing y Negocios:** Estrategias de contenido para Instagram, TikTok, SEO, Google Ads y Facebook Ads.
+* **Craft y Manualidades:** Artesanías top ventas como cerámica, bordado, crochet, macramé y encuadernación.
+* **Fotografía y Vídeo:** Edición profesional en Premiere, Lightroom y dirección de arte.
+
+## ❓ Preguntas Frecuentes (FAQ) sobre los descuentos en Domestika
+
+**¿El código CARMENTUNE10 caduca?**
+Actualmente, este código ha sido revisado y se mantiene activo para los usuarios. Te recomendamos aplicarlo durante tu próxima compra para asegurar este 10% de ahorro antes de que cambien las políticas promocionales.
+
+**¿Puedo usar el cupón si ya hay rebajas en la web?**
+¡Sí! Esta es la mayor ventaja del cupón CARMENTUNE10. Si Domestika tiene activas campañas de ofertas temporales (como Black Friday, Cyber Monday o rebajas flash), este 10% se acumulará al descuento existente en tu carrito.
+
+**¿Puedo aplicar el descuento si quiero comprar un curso para regalar?**
+¡Por supuesto! Domestika permite comprar cualquier curso para regalárselo a otra persona. Solo tienes que marcar la opción "Comprar para regalar" o el icono del regalo, proceder a la pasarela de pago y aplicar el código CARMENTUNE10. Tú obtendrás el 10% de ahorro y la otra persona recibirá un email con las instrucciones para acceder a su curso.
+
+---
+
+### 👉 [Haz clic aquí para ir al catálogo de Domestika y canjear tu 10% de descuento](https://www.domestika.org/)
+*(Recuerda escribir **CARMENTUNE10** en la casilla de descuentos antes de pagar).*

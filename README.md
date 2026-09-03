@@ -1,4 +1,4 @@
-# Código de Descuento Domestika 10% Extra: CARMENTUNE10 (Actualizado 2026)
+# Código de Descuento Domestika 10% Extra CARMENTUNE10 (Actualizado 2026)
 
 Si buscas mejorar tus habilidades creativas o aprender una nueva disciplina, Domestika destaca como la plataforma de formación de referencia en la comunidad hispanohablante. Para maximizar tu presupuesto educativo, puedes aplicar el código exclusivo **CARMENTUNE10** durante el proceso de pago y obtener un **10% de descuento adicional**.
 
